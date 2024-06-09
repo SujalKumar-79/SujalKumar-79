@@ -2,7 +2,7 @@
 - 👀 I’m interested in JAVA
 - 🌱 I’m currently learning DSA
 - 💞️ I’m looking to collaborate on challanging projects
-- 📫 Contact me at  
+- 📫 Contact me at sujalkumar66965@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
